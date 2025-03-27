@@ -1,0 +1,1 @@
+# scannerpdfpro-privacy
